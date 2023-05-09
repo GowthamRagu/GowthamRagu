@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @GowthamRagu
 - 👀 Recruiter OR Talent Sourcer
-- 📫 Reach me..gowthamragu96@gmail.com
+- 📫 Reach me @ gowthamragu96@gmail.com
